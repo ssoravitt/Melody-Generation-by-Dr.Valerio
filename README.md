@@ -5,4 +5,4 @@ https://www.youtube.com/playlist?list=PL-wATfeyAMNr0KMutwtbeDCmpwvtul-Xz
 
 I transform the codes into my own way for understanding easily.
 
-Thank you very much for the code and knowledge. 
+Thank you very much for the codes and knowledge. 
